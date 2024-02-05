@@ -1,2 +1,3 @@
 # git_test
-hello_mahim thank you for your hard work! but I'm out of water, I'm in need to water for survival reasons
+hello mahim thank you for your hard work! but I'm out of water, I'm in need to water for survival reasons
+watson stated that psychoology should study only Observable phenomena (refering to the experiment with the baby with no fear of small animals like rat, rabbit, and mouses. After conditioning to fear those animals (by making a loud sound to create fear) he was conditioned to fear those animals and start crying). -Albart experiment 
